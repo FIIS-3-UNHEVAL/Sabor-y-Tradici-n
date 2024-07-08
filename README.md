@@ -1,2 +1,2 @@
-# Sabor-y-Tradici-n
+# Sabor y Tradición
 GRUPO3
